@@ -1,16 +1,31 @@
-## Hi there 👋
+![](https://i.postimg.cc/0260JsP8/image-2024-05-23-232213919.png)
 
-<!--
-**fullofjayness/fullofjayness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+<pre>
+ <p align="center">  ୭˚⋆✴︎˚｡⋆   jay  ּ ֶָ֢.  istj  ּ ֶָ֢.  he / him  ּ ֶָ֢.  5teen .     </p>
+<pre>
+
+
+  
+<pre></pre>
+<p align="center"> 𓏲 ๋࣭  ࣪ ˖  check out my strawpage !    ( why is coding so hard . . ? )
+
+
+
+
+
+
+
+
+
+![](https://i.postimg.cc/g03MLPyw/image-2024-05-23-232158253.png)
+
