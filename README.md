@@ -8,8 +8,6 @@
 
 
 
-
-
 <pre>
  <p align="center">  ୭˚⋆✴︎˚｡⋆   jay  ּ ֶָ֢.  istj  ּ ֶָ֢.  he / him  ּ ֶָ֢.  5teen .     </p>
 <pre>
@@ -17,7 +15,7 @@
 
   
 <pre></pre>
-<p align="center"> 𓏲 ๋࣭  ࣪ ˖  check out my strawpage !    ( why is coding so hard . . ? )
+<p align="center"> 𓏲 ๋࣭  ࣪ ˖  check out my strawpage !     ( why is coding so hard . . ? ) 
 
 
 
