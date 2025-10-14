@@ -15,7 +15,7 @@
 
   
 <pre></pre>
-<p align="center"> 𓏲 ๋࣭  ࣪ ˖  check out my strawpage !     ( why is coding so hard . . ? ) 
+<p align="center"> 𓏲 ๋࣭  ࣪ ˖  check out my strawpage & ata !     ( why is coding so hard . . ? ) 
 
 
 
